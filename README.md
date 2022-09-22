@@ -2,3 +2,4 @@
 Dennis Patrick Juilland Prada
 Enrique Gonzalez Cetina
 Ignacio Riveros
+Juan Guillemo Jimenez
